@@ -1,1 +1,0 @@
-# Randys-alph.github.io
